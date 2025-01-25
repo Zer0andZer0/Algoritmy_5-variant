@@ -1,0 +1,1 @@
+# Algoritmy_5-variant
